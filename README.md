@@ -1,1 +1,1 @@
-# jolathraut2020
+# Jólaþrautin 2020
